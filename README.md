@@ -1,1 +1,1 @@
-# Freefire-new-code
+https://reward.ff.garena.com/en
